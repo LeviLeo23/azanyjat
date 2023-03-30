@@ -1,2 +1,2 @@
-# azanyjat
+# campus
 9oradie
